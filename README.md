@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PhoenixMagma
+- 👀 I’m interested in ... Discord Bots and Discord servers
+- 🌱 I’m currently learning ... Python
+- 💞️ I’m looking to collaborate on ... Discord Bots Projets
+- 📫 How to reach me ... PhoenixMagma#9644 Discord ID DM opens
